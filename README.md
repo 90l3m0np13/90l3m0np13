@@ -26,4 +26,6 @@ Soy un profesional de IT de 31 años con experiencia en el sector informático, 
 
 *   LinkedIn: https://www.linkedin.com/in/%C3%A1lvaro-arenas-jim%C3%A9nez-930540210/
 *   Correo electrónico: 90l3m0np13@gmail.com
+
+
 ¡Gracias por visitar mi perfil! Espero que encuentres mis proyectos interesantes y que podamos conectar.
